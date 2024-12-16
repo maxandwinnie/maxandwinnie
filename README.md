@@ -14,6 +14,8 @@ DSMP/OSMP/QSMP (we do NOT support the irl members! DNI if you do!) • Cartoon N
 
 This is still a WIP but that's it for now :] Thanks for being here! 
 
+DC: werewolfcrossing_88492
+
 
 
 
