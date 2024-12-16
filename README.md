@@ -10,7 +10,7 @@ We are an endogenic system with an unknown source. DNI if you think endogenic sy
 
 Anyways, sorry for the long DNI list :'] Here's some fandom INTs!:
 
-DSMP/OSMP/QSMP (we do NOT support the irl members! DNI if you do!) • Cartoon Network • Bluey • SF • Omori • UT/DR • COTL • FNAF • COD • Fantastic Mr. Fox (please!!!) • WOF • WC • Again, not an exhaustive list. We don't do similar video game INTs besides ones listed. Also, DNI if you're toxic in any way about/with any of these
+DSMP/OSMP/QSMP (we do NOT support the irl members! DNI if you do!) • Cartoon Network • Bluey • SF • Omori • UT/DR • COTL • FNAF • COD • Fantastic Mr. Fox (please!!!) • WOF • WC • Again, not an exhaustive list. We don't do similar video game INTs besides ones listed. Also, DNI if you're toxic in any way about/with any of these. YOU DON'T HAVE TO BE IN ANY OF THESE FANDOMS IN ORDER TO INTERACT WITH US!!!
 
 This is still a WIP but that's it for now :] Thanks for being here! 
 
